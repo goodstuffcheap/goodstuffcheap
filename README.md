@@ -1,2 +1,2 @@
 - 🔍 @goodstuffcheap
-- 💬 i won't use this site often
+- 💬 i don't use this site often
